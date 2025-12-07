@@ -1,1 +1,0 @@
-# legiora.com
